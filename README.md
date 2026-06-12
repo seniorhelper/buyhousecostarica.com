@@ -1,0 +1,2 @@
+# buyhousecostarica.com
+buyhousecostarica.com
